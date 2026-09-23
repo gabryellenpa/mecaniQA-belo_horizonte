@@ -9,3 +9,7 @@ Tratando-se também de uma OAT pelos estudantes do polo de Itabuna da UNEX, sobr
 - Felipe Souza Teixeira da Silva
 - Jhon Luiz Sousa Santos
 - João Gabriel Aboboreira Rodrigues
+
+
+## Encontro 09/09/2026
+- 
